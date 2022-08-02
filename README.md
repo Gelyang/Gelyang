@@ -1,2 +1,3 @@
 
-She/they : Gemini | isfj-t
+She/her : Gemini | isfj-t
+
